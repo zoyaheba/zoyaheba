@@ -7,5 +7,8 @@ I am seeking 👀 an opportunity to showcase my abilities in growing company loo
 
 I am focused 🎯, adaptable, dependable while also being a flexible self-starter.
 
+📭
+www.linkedin.com/in/heba-zoya-s-9526a71bb
+
 
 
